@@ -1,3 +1,4 @@
 # Hello, World!
 
-иди нахуй
+Kanye West
+The genius
