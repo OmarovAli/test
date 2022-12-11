@@ -3,5 +3,3 @@
 Kanye West
 The genius
 hahhahahah STALIN
-
-ahahahhhhhhhhhhhhhhhhhhh
